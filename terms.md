@@ -29,4 +29,4 @@ We are not liable for missed reminders, data loss, or any damages resulting from
 We may update these terms at any time. Continued use of the Bot means you accept the updated terms.
 
 ## 8. Contact
-Questions? Contact us at [your email or Discord username] or through our Facebook page: https://www.facebook.com/profile.php?id=61594684895185
+Questions? Contact us at @Dreamy.kly or through our Facebook: https://www.facebook.com/profile.php?id=61593743521516
