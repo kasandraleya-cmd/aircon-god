@@ -31,5 +31,5 @@ The Bot is not intended for users under the minimum age required by Discord's Te
 We may update this policy from time to time. The "Last updated" date shows the latest version.
 
 ## 8. Contact
-[your email or Discord username]
-Facebook: https://www.facebook.com/profile.php?id=61594684895185
+Discord: Dreamy.kly
+Facebook: https://www.facebook.com/profile.php?id=61593743521516
